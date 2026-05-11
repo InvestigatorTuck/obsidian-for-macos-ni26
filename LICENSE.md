@@ -1,4 +1,4 @@
-
+Enhance Obsidian for macOS with professional Obsidian for macOS Utility | cloud backup + note encryption, the #1 utility. Includes cloud backup and note encryption for a smoother
 
 
 
